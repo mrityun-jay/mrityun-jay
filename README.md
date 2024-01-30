@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mrityun-jay
+- 👀 I’m interested in Augmented Reality 
+- 🌱 I’m currently learning AR & VR 
+- 💞️ I’m looking to collaborate 
+- 📫 How to reach me?
+- ⚡ Fun fact: ... I am just 19 year old 
