@@ -2,4 +2,4 @@
 - I’m interested in Augmented Reality 
 - I’m currently learning AR & VR 
 - I’m looking to collaborate 
-- Fun fact: ... I am just 19 year old (Thats not funny at all i know)
+- Fun fact: ... I am just 20 years old (That's not funny at all, I know)
